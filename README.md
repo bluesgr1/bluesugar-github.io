@@ -46,9 +46,9 @@ Jika Anda ingin melihat atau memodifikasi tampilan website ini di komputer Anda 
 ### 📬 Hubungi Saya
 Saya selalu terbuka untuk kolaborasi atau sekadar bertukar pikiran tentang teknologi!
 
-* **LinkedIn:** [linkedin.com/in/username](www.linkedin.com/in/yuliani-astuti-b668382a7)
-* **Instagram:** [@username](https://instagram.com/blue.sgr/)
-* **Email:** [emailkamu@gmail.com](bluesssugar@gmail.com)
+* **LinkedIn:** [linkedin.com/in/yuliani-astuti](www.linkedin.com/in/yuliani-astuti-b668382a7)
+* **Instagram:** [@blue.sgr](https://instagram.com/blue.sgr/)
+* **Email:** [bluesssugar@gmail.com](bluesssugar@gmail.com)
 
 ---
 *Dibuat dengan dedikasi oleh **BlueSugar** © 2026*
